@@ -22,7 +22,7 @@ I'm looking to collaborate on:
 ## 📫 How to Reach Me
 - 📧 Email: 		yamkamwendo@outlook.com
 - 🌐 Portfolio: 	https://yamkamwendo.wixsite.com/angozo-analytics
-- 🐦 Twitter: 		@Yam_Kan_
+- 🐦 Twitter: 		https://twitter.com/@Yam_Kan_
 - 💼 LinkedIn: 		https://www.linkedin.com/in/yamikani-kamwendo-8444312a/
 
 ## 😄 Pronouns
